@@ -1,0 +1,1 @@
+Could you please provide the full problem description or specify the task you need a Python solution for?
